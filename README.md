@@ -10,8 +10,4 @@ How to detect a Missing Person
     Reach Out To Your Community. ...
     Make Posters. ...
     
-    
-    
-    
-    
-
+Thanks for contribution.
